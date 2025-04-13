@@ -282,8 +282,6 @@ _“At this point I want to quit.”_
 
 I know it's a good decision to change our passion when we know that we can’t do anything with it in future. So now I’m thinking of jumping into drawing classes and learning how to draw, at least there I don’t have to put so much effort in thinking and researching. So this documentation ends here and from this point onwards I’ll be making drawing documentation.
 
-You might think that I’ve quit? Fuck no, this is not a TV show, and not a Disney movie that in the end something magical will happen and suddenly I’ll realise that I have this super power of hacking into stuffs like a real badass. Well fuck you…
-
 Some inspiring words:
 
 _Well I’m going to cheat on this one,_
